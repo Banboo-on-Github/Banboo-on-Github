@@ -4,7 +4,9 @@
 
 Twitter：@Banboo_on_osu
 
-YouTube：https://www.youtube.com/channel/UCvaDADqJL-PAJoTo2v7kLWg （Original Content Comming Soon）
+YouTube：https://www.youtube.com/channel/UCvaDADqJL-PAJoTo2v7kLWg （Original Contents Comming Soon）
+
+Odysee：https://odysee.com/@Banboo （Original Contents Comming Soon）
 
 ## Contact
 
