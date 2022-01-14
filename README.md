@@ -2,7 +2,7 @@
 
 ## Follow Me
 
-Twitter：@Banboo_on_osu
+Twitter：https://twitter.com/Banboo_on_osu
 
 YouTube：https://www.youtube.com/channel/UCvaDADqJL-PAJoTo2v7kLWg （Original Contents Comming Soon）
 
