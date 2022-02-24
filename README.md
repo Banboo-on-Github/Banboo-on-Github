@@ -10,6 +10,6 @@ Odysee：https://odysee.com/@Banboo （Original Contents Comming Soon）
 
 ## Contact
 
-Telegram: @Banboo_on_osu
+Telegram: @Banboosu
 
 Email: Banboo_on_osu@pm.me
